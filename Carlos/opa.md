@@ -1,1 +1,1 @@
-Carlos é gente boa demais 
+Carlos é chato demais, porém bom demais!! Além de ser fã da Dudinha :>
